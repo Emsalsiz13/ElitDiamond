@@ -1,0 +1,2 @@
+# ElitDiamond
+ELİT DİAMOND
